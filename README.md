@@ -2,7 +2,7 @@
 - 👀 I’m interested in pyhton 
 - 🌱 I’m currently learning sharda university
 - 💞️ I’m looking to collaborate on data analyst
-- 📫 How to reach me through mail
+- 📫 dhruvsharma29005@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: love to interact>>>>
 
